@@ -6,6 +6,6 @@ you can call me by the name Kuni, or Elli atleast. Firstly-for the DO NOT INTERA
  Cuds are fine for me, but please not in the middle of me with my friends. it's a little too awkward. I am friendly, but the way i speak is not considerable. I don't talk alot, i'm not the one who would communicate to you like a yapper would.
  I'm a writer, I wrote "My lantern" Azuretime, you can see it in a Library game in roblox. I'm also an artist, but i rarely show some arts since i lost my style these days. I can also sing, but i don't sing for everyone just so easily. Call me with the pronouns THEY/THEM, Don't call me he/she unless i told you so. I don't know what to tell more, have a good day. thankyou for reading.
 
- ### if you wanna know a little about how i act, please consider reading @dummy-chance 's respository.
+ ### if you wanna know a little about how i act, please consider reading chance 's respository.
 
- Ilysm and thankyou for mentioning me my dear, @dummy-chance
+ Ilysm and thankyou for mentioning me my dear, chancey
