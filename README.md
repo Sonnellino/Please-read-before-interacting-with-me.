@@ -9,3 +9,5 @@ you can call me by the name Kuni, or Elli atleast. Firstly-for the DO NOT INTERA
  ### if you wanna know a little about how i act, please consider reading chance 's respository.
 
  Ilysm and thankyou for mentioning me my dear, chancey
+
+aromantic BTW.
